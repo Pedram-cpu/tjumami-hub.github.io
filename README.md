@@ -1,3 +1,4 @@
 # Tjumami Gang / Kulladals Gang Gang !
 Alla tjumami gang.
 Guys vi går till rosengård idag.
+<img src="https://static-cdn.sr.se/images/83/3628322_2048_1152.jpg?preset=1024x576" alt="Apa får inte upphovsrätt för selfie - Ekot | Sveriges Radio"/>![Uploading image.png…]()
