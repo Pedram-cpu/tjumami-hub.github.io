@@ -1,3 +1,3 @@
 # tjumami-hub.github.io
 Alla tjumami gang.
-W Mosa / Amin / Zam
+Guys vi går till rosengård idag.
